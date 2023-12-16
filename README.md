@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kerinle
+- 👀 I’m interested in General knowledge
+- 🌱 I’m currently learning politics
+- 💞️ I’m looking for good music
